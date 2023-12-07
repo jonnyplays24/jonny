@@ -1,0 +1,2 @@
+# jonny
+codigo exepcional opctions
